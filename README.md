@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-  Phone number: <a href="tel:+393896089947">+39 389 608 9947</a>
+  Phone number: <a href="tel:+393896089947">+39 011 0899663</a>
 </p>
 
 <p align="center">
